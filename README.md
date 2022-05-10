@@ -1,0 +1,8 @@
+DONT RUN ANY OTHER FILE!!!!
+ONLY
+CHATROOM.BAT
+ONLY
+THAT
+FILE!!!!!!!!
+get it now?
+ok
